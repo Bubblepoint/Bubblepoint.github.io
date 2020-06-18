@@ -5,3 +5,5 @@ He is an main character from the sience fiction books, Black out, Hide Out and T
 * Hacker
 * Young
 * Genius
+
+> Die Upgrader kommen
