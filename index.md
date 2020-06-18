@@ -7,3 +7,5 @@ He is an main character from the sience fiction books, Black out, Hide Out and T
 * Genius
 
 > Die Upgrader kommen
+
+<img src="https://rcpkirsch.files.wordpress.com/2013/06/eschbachcover.jpg?w=400"/>
